@@ -14,4 +14,4 @@ No bullshit. Just systems.
 
 ---
 
-📫 Contact: dev@jesuscantillo.com
+📫 Contact: contact@jesuscantillo.com
